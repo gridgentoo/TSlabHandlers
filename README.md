@@ -5,7 +5,7 @@
 Лаборатория Трейдинга. Онлайн-Встреча с командой ТСЛаб    
 https://www.youtube.com/watch?v=nhilDzRevj8&feature=youtu.be  
 
-Cсылка на курс по алгоритмическому трейдингу: https://alor-broker.timepad.ru/event/...
+Cсылка на курс по алгоритмическому трейдингу: https://alor-broker.timepad.ru/event/924723/  
 Телеграм-канал "Лаборатория Трейдинга": t-do.ru/TradingLaboratory  
 
 0:00 - приветствие  
